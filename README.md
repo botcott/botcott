@@ -6,3 +6,5 @@ When repositories appear, feel free to use them :3
 But at the moment everything is done in private repositories
 
 That's it, good luck to you!
+
+![](https://giffun.ru/wp-content/uploads/2022/12/2k3ZCjp.gif)
